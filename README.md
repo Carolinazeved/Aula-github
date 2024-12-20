@@ -5,7 +5,7 @@
 
 * Estudante Alura
 * Estudante Fly Educação
-* Mulheres In'tech!
+* Mulheres In'tech! 2024
 * Turma 17 
 * Norte/Nordeste
 
